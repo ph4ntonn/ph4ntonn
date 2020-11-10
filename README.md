@@ -6,6 +6,10 @@
 - 💬 [Ask me something?](mailto:ph4ntom11235@gmail.com)
 - 😜 [See my blog?](https://ph4ntonn.github.io/)
 
+If you like web || binary(especially),welcome to add my wechat: ph4ntom112358
+
+Ball ball big old carry carry me XD
+
 [![ph4ntom's GitHub Stats](https://github-readme-stats.vercel.app/api?username=ph4ntonn&show_icons=true&hide_title=true)](https://github.com/ph4ntonn)
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=ph4ntom)
