@@ -6,7 +6,7 @@
 - 💬 [Ask me something?](mailto:ph4ntom11235@gmail.com)
 - 😜 [See my blog?](https://ph4ntonn.github.io/)
 
-If you like web || binary(especially),welcome to add my wechat: ph4ntom112358
+If you like web || binary,welcome to add my wechat: ph4ntom112358
 
 Ball ball big old carry carry me XD
 
