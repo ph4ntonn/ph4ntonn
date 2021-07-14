@@ -10,6 +10,8 @@ If you like web || binary,welcome to add my wechat: cGg0bnRvbTExMjM1OAo=
 
 Ball ball big old carry carry me XD
 
+PS: If you want to join ByteDance, feel free to contact me via Wechat || Email~
+
 [![ph4ntom's GitHub Stats](https://github-readme-stats.vercel.app/api?username=ph4ntonn&show_icons=true&hide_title=true)](https://github.com/ph4ntonn)
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=ph4ntom)
