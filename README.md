@@ -3,7 +3,7 @@
 - 👻 菜鸟安全研究员
 - 😓 经常搞一些没用但有意思的事情，喜欢研究各种好玩的东西，对世界保持好奇
 - 😊 涉及的安全领域比较杂(喜欢折腾的后遗症之一)，包括渗透、逆向、区块链等，现正专注于二进制安全&Linux/Android Kernel安全研究
-- 😊 闲暇时喜欢做交易、打游戏、看番，除了想做一名hacker外也梦想成为一个合格的交易员(有点难)以及游戏骨灰级玩家(Apex/Rainbow Six Siege/MHW/LOL/BattleField等等各种大作都可以找我玩)
+- 😊 闲暇时喜欢做交易、打游戏、看番，除了想做一名hacker外也梦想成为一名合格的交易员(有点难)以及游戏骨灰级玩家(Apex/Rainbow Six Siege/MHW/LOL/BattleField等等各种大作都可以找我玩)
 - 💬 我的邮箱:ph4ntom11235@gmail.com
 - 😜 我的博客:https://ph4ntonn.github.io/
 
