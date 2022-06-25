@@ -8,7 +8,7 @@
 
 If you like web || binary,welcome to add my wechat: cGg0bnRvbTExMjM1OAo=
 
-Hack for fun everyone! Enjoy hacking~
+Hacking for fun everyone! Enjoy it!
 
 [![ph4ntom's GitHub Stats](https://github-readme-stats.vercel.app/api?username=ph4ntonn&show_icons=true&hide_title=true)](https://github.com/ph4ntonn)
 
