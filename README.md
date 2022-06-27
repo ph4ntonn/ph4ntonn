@@ -7,7 +7,7 @@
 - 💬 我的邮箱:ph4ntom11235@gmail.com
 - 😜 我的博客:https://ph4ntonn.github.io/
 
-如果对我的项目有什么疑问或者建议,亦或者想要与我交流的，可以加我的微信: cGg0bnRvbTExMjM1OAo=
+如果对我的项目有什么疑问或者建议,亦或想要与我交流的，可以加我的微信: cGg0bnRvbTExMjM1OAo=
 
 Hacking for fun everyone! Enjoy it!
 
