@@ -9,7 +9,7 @@
 
 如果对我的项目有什么疑问或者建议,欢迎在项目下留言，看到的第一时间便会给予回复~
 
-如果想要与我交流技术或交个朋友，也可以加我的微信: cGg0bnRvbTExMjM1OAo=
+如果想要与我交流技术或交个朋友，也可以加我的微信: cGg0bnRvbm4=
 
 Hacking for fun everyone! Enjoy it!
 
